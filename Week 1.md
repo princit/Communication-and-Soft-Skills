@@ -49,5 +49,15 @@
 ![image](https://github.com/princit/Communication-and-Soft-Skills/assets/29123911/24acfcce-0f59-4f3f-a89a-0a4752619331)
 ![image](https://github.com/princit/Communication-and-Soft-Skills/assets/29123911/66341f88-bcf7-4e7e-9342-dae8a9839854)
 
+**Topic 4 | Language Basics: Introduction to Vowels & Consonants**
+![image](https://github.com/princit/Communication-and-Soft-Skills/assets/29123911/7da8d897-9443-409b-91d6-81765ebbeed0)
+![image](https://github.com/princit/Communication-and-Soft-Skills/assets/29123911/0aa70ad2-edd5-4c59-b9df-72b1d446d2bd)
+
+**Topic 5 | Language Basics: Introduction to Articles**
+![image](https://github.com/princit/Communication-and-Soft-Skills/assets/29123911/a18d28e9-aa90-4154-9456-c6177ac77979)
+
+**Topic 6 | Language Basics: Introduction to Nouns**
+
+
 
 
